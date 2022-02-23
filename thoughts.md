@@ -6,4 +6,4 @@
 
 Shout out to my brother Gerry, for always helping me and having a good heart
 
-thoughts one two three
+thoughts one two 
